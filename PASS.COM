@@ -1,0 +1,1 @@
+´	º2Í!¿a´Í!<tªëõ¿a¾ló¦NºBŠ<$tºR´	Í!´LÍ!Enter password:$Access granted!$Access denied!$----------$some pass$
